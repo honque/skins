@@ -1,4 +1,6 @@
-# [honque.glassysky](https://beatmywater.s-ul.eu/ia1n8VSq)
+all skins are less than 1mb in size
+
+# [honque.glassysky](https://beatmywater.s-ul.eu/5QoTnUgf)
 ![](https://beatmywater.s-ul.eu/No3xaxnW)
 # [honque.obtio](https://beatmywater.s-ul.eu/89AgyxvZ)
 ![](https://beatmywater.s-ul.eu/fr5pGzsV)
